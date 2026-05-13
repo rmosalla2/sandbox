@@ -2,6 +2,16 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 00:02 IR
+- 🗜️ [آموزش قلعه های برگاندی حالت سولو (بازی سولو با بات ش توما).mp4.zip](https://github.com/rmosalla2/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%82%D9%84%D8%B9%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%A8%D8%B1%DA%AF%D8%A7%D9%86%D8%AF%DB%8C%20%D8%AD%D8%A7%D9%84%D8%AA%20%D8%B3%D9%88%D9%84%D9%88%20%28%D8%A8%D8%A7%D8%B2%DB%8C%20%D8%B3%D9%88%D9%84%D9%88%20%D8%A8%D8%A7%20%D8%A8%D8%A7%D8%AA%20%D8%B4%20%D8%AA%D9%88%D9%85%D8%A7%29.mp4.zip) `3.6MB`
+
+- 🗜️ [آموزش قلعه های برگاندی حالت سولو (بازی سولو با بات ش توما).mp4.z01](https://github.com/rmosalla2/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%82%D9%84%D8%B9%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%A8%D8%B1%DA%AF%D8%A7%D9%86%D8%AF%DB%8C%20%D8%AD%D8%A7%D9%84%D8%AA%20%D8%B3%D9%88%D9%84%D9%88%20%28%D8%A8%D8%A7%D8%B2%DB%8C%20%D8%B3%D9%88%D9%84%D9%88%20%D8%A8%D8%A7%20%D8%A8%D8%A7%D8%AA%20%D8%B4%20%D8%AA%D9%88%D9%85%D8%A7%29.mp4.z01) `95.0MB`
+
+- 🗜️ [آموزش قلعه های برگاندی حالت سولو (بازی سولو با بات ش توما).mp4.zip](https://github.com/rmosalla2/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%82%D9%84%D8%B9%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%A8%D8%B1%DA%AF%D8%A7%D9%86%D8%AF%DB%8C%20%D8%AD%D8%A7%D9%84%D8%AA%20%D8%B3%D9%88%D9%84%D9%88%20%28%D8%A8%D8%A7%D8%B2%DB%8C%20%D8%B3%D9%88%D9%84%D9%88%20%D8%A8%D8%A7%20%D8%A8%D8%A7%D8%AA%20%D8%B4%20%D8%AA%D9%88%D9%85%D8%A7%29.mp4.zip) `3.6MB`
+
+---
+
+
 ### 📅 2026-05-12 14:39 IR
 - 🗜️ [آموزش فارسی بازی Ezra and Nehemiah.mp4.zip](https://github.com/rmosalla2/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%81%D8%A7%D8%B1%D8%B3%DB%8C%20%D8%A8%D8%A7%D8%B2%DB%8C%20Ezra%20and%20Nehemiah.mp4.zip) `71.8MB`
 
